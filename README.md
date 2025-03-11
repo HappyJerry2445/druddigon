@@ -1,3 +1,3 @@
 # druddrigon
 druddigon
->>>>>>> testing2
+miglior pokemon del pooooooooly
